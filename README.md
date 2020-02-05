@@ -1,0 +1,2 @@
+# fortuneminer
+forex trading
